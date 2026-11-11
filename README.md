@@ -8,6 +8,12 @@ Articles from [thaidtvvisa.com](https://thaidtvvisa.com/).
 
 <!-- LATEST:START -->
 
+### [Your two month Thai getaway now needs actual visa paperwork](https://thaidtvvisa.com/)
+
+Planning a two month Thai getaway requires careful attention to entry rules since the thailand 30 day visa exemption limits your stay. Securing a proper tourist permit before departure prevents sudden entry limit reductions and costly flight rebooking fees. Thai DTV Visa offers professional processing services to handle your paperwork and verify financial records before submission. Getting a full tourist permit ensures your extended stay remains legally compliant so your travel plans stay protected.
+
+*November 11, 2026 · EN*
+
 ### [One missing certified translation can delay your whole family move](https://thaidtvvisa.com/)
 
 Gathering family dtv visa documents for a move to Thailand is stressful. Simple errors like a missing certified translation or mismatched names on birth certificates can cause visa rejections and delay your relocation. Checking your civil certificates and sponsor financial statements before filing prevents these costly mistakes.
