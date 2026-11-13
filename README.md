@@ -8,6 +8,12 @@ Articles from [thaidtvvisa.com](https://thaidtvvisa.com/).
 
 <!-- LATEST:START -->
 
+### [Can you still stay two months after visa exemptions changed](https://thaidtvvisa.com/)
+
+Recent rule updates mean the thailand 60 day visa ended for casual entry at the border. Relying on short exemptions fails extended stays, but you do not need to cancel your trip. Thai DTV Visa checks your bank statements and flight itineraries before submission to prevent consulate rejections. Arrive at immigration fully prepared with proper paperwork. Contact Thai DTV Visa at info@thaidtvvisa.com to get your documents reviewed.
+
+*November 13, 2026 · EN*
+
 ### [Arriving early still leaves you guessing about your visa entry status](https://thaidtvvisa.com/)
 
 Planning an extended trip requires exact document verification to avoid rejected paperwork and travel delays. If you are entering thailand before september 2026, proper checks ensure your tourist visa paperwork is correct. The tourist visa processing service at Thai DTV Visa checks bank records, passport scans, and flight details line by line so your application meets consulate standards. This review helps you secure a full sixty-day stay without unexpected border updates disrupting your plans. To confirm your entry paperwork is ready, contact Thai DTV Visa at info@thaidtvvisa.com today.
