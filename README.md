@@ -8,6 +8,12 @@ Articles from [thaidtvvisa.com](https://thaidtvvisa.com/).
 
 <!-- LATEST:START -->
 
+### [Short visa exemptions can ruin a two month stay](https://thaidtvvisa.com/)
+
+Planning a two month winter trip becomes stressful when entry rules suddenly shift. If your passport belongs to the list of countries with 30 day exemption policies, free limits can cut your travel plans in half. Self-filing on official portals often causes review delays, and relying on short exemptions risks airline boarding problems. Thai DTV Visa solves this through a structured tourist visa processing service. We audit your passport scans, check bank statement dates, and verify travel itineraries against strict consulate standards before you file. Proper preparation secures your long stay so you can enjoy your trip without worry. Contact Thai DTV Visa at info@thaidtvvisa.com for document guidance.
+
+*November 14, 2026 · EN*
+
 ### [Can you still stay two months after visa exemptions changed](https://thaidtvvisa.com/)
 
 Recent rule updates mean the thailand 60 day visa ended for casual entry at the border. Relying on short exemptions fails extended stays, but you do not need to cancel your trip. Thai DTV Visa checks your bank statements and flight itineraries before submission to prevent consulate rejections. Arrive at immigration fully prepared with proper paperwork. Contact Thai DTV Visa at info@thaidtvvisa.com to get your documents reviewed.
